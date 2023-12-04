@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Scherban828.github.io/rsschool-cv/cv
